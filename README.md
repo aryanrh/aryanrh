@@ -7,11 +7,11 @@
 - 💬 Ask me about technology.
 - 📫 Reach me: business-email: <a href="mailto:contact@aryanrh.rf.gd">contact@aryanrh.rf.gd</a> [or] personal-email: <a href="mailto:aryanrh@icloud.com">aryanrh@icloud.com</a>
 
-##Follow me
+### Follow me
 - <a href="https://instagram.com/aryan_r_h/">instagram.com/aryan_r_h</a>
 - <a href="https://www.snapchat.com/add/rh.aryan">snapchat.com/add/rh.aryan</a>
 - <a href="https://www.facebook.com/aryan.r.h.official/">facebook.com/aryanrh.official</a>
 
-##Support me
+### Support me
 - <a href="https://www.buymeacoffee.com/aryanrh">buymeacoffee.com/aryanrh</a>
 - <a href="https://www.fiverr.com/aryan_r_h">fiverr.com/aryan_r_h</a>
