@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate.
 - 🤔 I’m looking for help with google.
 - 💬 Ask me about technology.
-- 📫 Reach me: business-email: <a href="mailto:contact@aryanrh.rf.gd">contact@aryanrh.rf.gd</a>
+- 📫 Reach me: business-email: <a href="mailto:contact@aryanrh.in">contact@aryanrh.in</a>
 
 
 ### Follow me
